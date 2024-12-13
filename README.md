@@ -29,4 +29,9 @@ Hoy en día es impensable tener éxito haciendo **ASMR** en YouTube
 mucho más fácil porque no había apenas gente que conociera esta  
 temática. De hecho, ella empezó usando el micrófono de sus  
 auriculares. ***Ahora eso se acabó***  
-***Empezar es muy fácil, pero hacerlo bien no tanto
+***"Empezar es muy fácil, pero hacerlo bien no tanto. Hay mucha  
+gente que sigue haciendo lo que nosotros hacíamos al principio, y  
+crecer así es muy difícil"***  
+
+## 2. Ten paciencia y no te compares con otros  
+
