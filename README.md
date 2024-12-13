@@ -19,3 +19,14 @@
 ***necesita una serie de conocimientos y paciencia, mucha***  
 **_paciencia_. Ahora hay mucha más competencia que cuando yo**  
 **empecé” ~~asegura Muñoz.~~**  
+
+### Estos son los consejos de Ana Muñoz (Love ASMR) para  
+### aquellos que quieren empezar a hacer ASMR en YouTube:  
+
+## 1. Busca siempre la calidad  
+Hoy en día es impensable tener éxito haciendo **ASMR** en YouTube  
+~~utilizando cualquier cosa.~~ Como comenta Muñoz, al principio era  
+mucho más fácil porque no había apenas gente que conociera esta  
+temática. De hecho, ella empezó usando el micrófono de sus  
+auriculares. ***Ahora eso se acabó***  
+***Empezar es muy fácil, pero hacerlo bien no tanto
