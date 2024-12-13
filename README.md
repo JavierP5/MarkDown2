@@ -17,5 +17,5 @@
 
 ***“Todavía el nicho no está tan ocupado. Pero para tener éxito se***  
 ***necesita una serie de conocimientos y paciencia, mucha***  
-**_paciencia_. Ahora hay mucha más competencia que cuando yo**
-empecé” ~~asegura Muñoz.~~
+**_paciencia_. Ahora hay mucha más competencia que cuando yo**  
+**empecé” ~~asegura Muñoz.~~**  
