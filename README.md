@@ -64,4 +64,24 @@ que hay que cuidar -_y mucho_- ***la parte visual de los vídeos***
 ## 4. Cuida la imagen en tus vídeos  
 El aspecto visual es muy importante. Por esta razón, jugar con los  
 fondos que se ven detrás de los creadores de contenido es muy  
-importante.
+importante. En el ASMR es fundamental crear una atmósfera que  
+_resulte acogedora e invite a la relajación_. Por este motivo, fondos  
+negros con pequeñas luces tenues son muy utilizados en la  
+comunidad **ASMR**.  
+
+## 5. Monetiza tus vídeos al principio  
+El tema de los anuncios en el universo ASMR ha dado para ***un  
+sinfín de memes***. En este sentido, los anuncios de YouTube que  
+interrumpen cuakquier vídeo, chocan directamente con la _filosofía  
+ASMR_ que busca relajar al usuario. De esta manera, la gente cuenta que,  
+cuando están a punto de dormirse, un anuncio a todo volumen interrumpe  
+su sueño.  
+
+Sin embargo, **sin anuncios los youtubers se quedan sin ingresos**.  
+
+Ana Muñoz asegura que ella monetiza los anuncios en los 3 primeros  
+minutos, para que no rompa el ambiente.  
+
+Por esta razón, una vez que puedas ***monetizar tus vídeos***, **primero  
+debes activar el modo manual** para que tú mismo puedas elegir el 
+número de anuncios y colocarlos donde tu quieras.  
