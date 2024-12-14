@@ -61,3 +61,7 @@ cosquilleo"*** se puede producir de ambas maneras, tanto por un
 estímulo visual como uno sonoro. Por lo que la youtuber explica  
 que hay que cuidar -_y mucho_- ***la parte visual de los vídeos***  
 
+## 4. Cuida la imagen en tus vídeos  
+El aspecto visual es muy importante. Por esta razón, jugar con los  
+fondos que se ven detrás de los creadores de contenido es muy  
+importante.
