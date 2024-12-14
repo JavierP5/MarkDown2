@@ -53,3 +53,11 @@ ASMR, y ella ya llevaba mucho más tiempo en YouTube que yo. Me
 decía ***"estás creciendo muy rápido"***, y comparado con ella era cierto,  
 ~~pero yo no tenía la sensación de si aquello era normal o no.~~  
 
+## 3. El sonido es muy importante, pero también el vídeo  
+Muchos pueden pensar que al tratarse de unos vídeos en los que el  
+sonido es una parte fundamental del ASMR, **la imagen no es tan**  
+**importante**. Sin embargo, esto fue un error porque la sensación ***"de  
+cosquilleo"*** se puede producir de ambas maneras, tanto por un  
+estímulo visual como uno sonoro. Por lo que la youtuber explica  
+que hay que cuidar -_y mucho_- ***la parte visual de los vídeos***  
+
