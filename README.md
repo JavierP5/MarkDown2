@@ -85,3 +85,20 @@ minutos, para que no rompa el ambiente.
 Por esta razón, una vez que puedas ***monetizar tus vídeos***, **primero  
 debes activar el modo manual** para que tú mismo puedas elegir el 
 número de anuncios y colocarlos donde tu quieras.  
+
+## 6. Utiliza tus redes para crear expectación  
+La youtuber cuenta en su cuenta Instagram (@anna.m.sanz)con  
+170.000 seguidores y comenta a _Business Insider España_ que esta  
+red social es también, una pieza clave en el buen funcionamiento de  
+sus vídeos en YouTube. Muñoz utiliza una estrategia sencilla, pero  
+efectiva y es que gracias a su perfil de Instagram promociona sus  
+vídeos y genera tráfico para luego llevar a esa gente a sus vídeos de Youtube.  
+
+“Esto es muy importante porque vas avisando de los vídeos que vas  
+a subir, y así tienes a la gente pendiente. Esto es muy importante  
+sobre todo los primeros minutos, y las primeras horas. Pero yo diría  
+que los primeros minutos más. Cuando tú subes un video a  
+YouTube, si la primera hora la gente lo ve, interactúa y tal. Ese video  
+se va a mostrar mucho y el algoritmo lo va a posicionar muy bien”.  
+
+
